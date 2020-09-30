@@ -17,3 +17,5 @@ I am Graduate Student at Rutgers Business School pursuing Master's in Informatio
 I am actively looking out for full time opportunities in the field of data analytics, business analyst, business intelligence, project management, product analyst.
 
 Apart from technology and business that drives me crazy, you'd most likely find me exploring the world! 
+
+Connect with me on Linkedin : https://www.linkedin.com/in/twinklemotwani/
