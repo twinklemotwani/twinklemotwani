@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+I am Graduate Student at Rutgers Business School pursuing Master's in Information Technology & Analytics graduating in December 2020 and currently working as a Product Analyst Co-op for GlaxoSmithKline. I love in bringing life to data and thus I have strong inclination towards analyzing, interpreting and presenting the data. I believe in the personal and professional development of myself at every stage of my life.
+I am actively looking out for full time opportunities in the field of data analytics, business analyst, business intelligence, project management, product analyst.
+
+Apart from technology and business that drives me crazy, you'd most likely find me exploring the world! 
